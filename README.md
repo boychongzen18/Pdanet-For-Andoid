@@ -16,7 +16,7 @@ My Website    : https://hackingforlive.wordpress.com
 
 My Facebok    : https://web.facebook.com/xroot.xroot.7
 
-My eMAIL      : phreakingindo@gmail.com,,hackingforlive@yahoo.com
+My eMAIL      : hackingforlive@yahoo.com
 
 MyTeam HFL    : https://defacer.id/archive/team/hackingforlive
 
